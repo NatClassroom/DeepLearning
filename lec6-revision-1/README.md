@@ -1,0 +1,1 @@
+This week we revise what we learn. Pen and paper style. Please checkout the slides on OnLearn.
